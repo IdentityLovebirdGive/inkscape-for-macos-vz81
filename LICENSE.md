@@ -1,4 +1,4 @@
-# 
+# Inkscape for macOS rare Brush Pack - gradient maps and plugin support is the best Inkscape for macOS brush, featuring gradient maps and plugin support. Safe, efficient, and
 
 
 
